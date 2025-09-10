@@ -1,1 +1,0 @@
-# vision-computadoras-I
